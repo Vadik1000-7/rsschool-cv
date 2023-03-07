@@ -1,4 +1,7 @@
+<image src="https://sun9-east.userapi.com/sun9-19/s/v1/ig2/RcbTUrL7wUhFUS_kKtQgFf35duDBBRviVmDqXs9KOeQcXALhg1JSkbD0OQL1J6CSZGoT26A3-0C2761f8qhYsYdL.jpg?size=960x1280&quality=95&type=album">
+
 # [Rsschool-cv](https://app.rs.school/course/schedule?course=js-fe-2023Q1)
+
 
 # Vadim Radyk
 
