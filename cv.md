@@ -11,7 +11,7 @@
 #### E-mail: petushok.v@mail.ru
 #### Telegram: @Vadim77881
 #### Discord: Vadik1000-7
-#### VK: https://vk.com/salem_cat1998?ysclid=lev1jwechj721171285
+#### [VK](https://vk.com/salem_cat1998?ysclid=lev1jwechj721171285)
 ***
 ## About me:
 
